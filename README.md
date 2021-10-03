@@ -1,0 +1,4 @@
+- Hi, I’m @aanagema
+- I’m 20 years old
+- 🌱 I’m a university studant an Architecture and Urbanism course
+- 📫 How to reach me: analima2001@gmail.com
